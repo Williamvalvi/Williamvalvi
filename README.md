@@ -1,4 +1,4 @@
-# 👩🏻‍💻 William johnny
+#  William johnny
 
 **`Desenvolvedora FullStack`**
 
